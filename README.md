@@ -1,2 +1,2 @@
 # Projects
-Projects during UNI days and Free time
+Projects during UNI days and in spare time
